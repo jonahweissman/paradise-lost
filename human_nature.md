@@ -1,6 +1,5 @@
 > What is Milton revealing about human nature in creating this dialogue?
 
-By emphasizing the ultimate power of Satan, Milton gives responsibility for all evil actions of
-humans to Satan. In Milton's worldview, humans are just the powerless subjects of all powerful
-good and evil forces. The balance of power between God and Satan provides evidence that all
-humans have a duality of good and evil within them. 
+Evil may not have always been inherent in humans; we were corrupted by Satan. Therefore, we are influenced by both good and evil. Perhaps recognizing that evil is an outer force would allow humanity to reject the prevalence of evil. The balance of power between God and Satan provides evidence that all
+humans have a duality of good and evil within them.   
+

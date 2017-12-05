@@ -1,2 +1,3 @@
 > What is your response to Milton's observation?
-Is the distinction between good and evil as black and white as we think? Most people think that the world exists in shades of gray. Some people think that people that do morally questionable things still get to go to excellent colleges, yet those that may have conducted themselves in a moral way do not get to do that. Why? Does it actually matter?
+
+Morality is oversimplified in Paradise Lost. Good and evil exist in the universe together, not completely separate in humans. Humans have both good and evil in them they have the free will to decide which way they want to go, but Milton suggests that sometimes it is just in their nature through his depiction of Satan as a tragic hero. 

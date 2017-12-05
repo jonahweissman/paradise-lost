@@ -1,2 +1,2 @@
 > What is the function of this work based on your reading of the first book?
-Milton explaining man's expulsion from Eden by describing how Satan (portrayed as human to show human nature) got himself kicked out of Heaven. Milton is explaining man's disobedience. 
+Milton through describing Satan's condemnation from Heaven to Hell, justifies the ways of God, specifically man's expulsion from Eden. Milton addresses the nature of evil and that the world does not exist in black and white, but shades of gray. 

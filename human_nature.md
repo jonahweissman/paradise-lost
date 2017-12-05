@@ -1,2 +1,2 @@
-> What is Milton revealing about human nature in creating this dialogue?
-Milton is revealing that humans are born inherently good, but are tempted by evil. Justification of why God punishes. Why does God allow the good suffer and the evil to thrive? 
+
+Milton places the blame of all evil actions on Satan through the tempetation of Eve. Milton sees humans as subject the forces of good and evil. Since God is good ans Satan is evil, the duality of good and evil in humans in represented. This is shown in how those that do immoral thigns may succeed and those that are moral may not succeed
